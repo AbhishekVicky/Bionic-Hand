@@ -142,6 +142,8 @@ BCA Student | Robotics & Embedded Systems Enthusiast
 
 GitHub: https://github.com/AbhishekVicky
 
+Post Link: https://www.linkedin.com/posts/abhivicky_artificialintelligence-robotics-bionichand-activity-7436475407035432960-twbw 
+
 LinkedIn: https://linkedin.com/in/abhivicky
 
 ---
